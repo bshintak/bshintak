@@ -2,8 +2,8 @@
 
 - 😊 I'm 20 years old
 - 🌎 I live in Torres Vedras
+- 👩‍💻 Student at 42Lisbon
 - ❤️ Musical instruments have my heart
-- 👩‍💻 Student at 42Lissbon
 - 😉 Pronouns: She/Her
 
 <div align="center">
