@@ -1,7 +1,7 @@
 ### Hi 👋 I'm developer, musician and interior designer
 
 - 😊 I'm 20 years old
-- 🌎 I live in Torres Vedras
+- 🌎 I live in Portugal
 - 👩‍💻 Student at 42Lisbon
 - ❤️ Musical instruments have my heart
 - 😉 Pronouns: She/Her
