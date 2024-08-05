@@ -1,6 +1,6 @@
 ### Hi 👋 I'm developer, musician and interior designer
 
-- 😊 I'm 21 years old
+- 😊 I'm 22 years old
 - 🌎 I live in Portugal
 - 👩‍💻 Student at 42Lisbon
 - ❤️ Musical instruments have my heart
