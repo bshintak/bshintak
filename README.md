@@ -2,6 +2,7 @@
 
 - 😊 I'm 22 years old
 - 🌎 I live in Portugal
+- 🤓​ Android Developer at Critical Techworks
 - 👩‍💻 Student at 42Lisbon
 - ❤️ Musical instruments have my heart
 - 😉 Pronouns: She/Her
